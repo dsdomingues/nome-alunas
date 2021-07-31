@@ -7,3 +7,4 @@ Isabel Costa
 Margarida Melo
 Mariana Lourenço
 Evelyn Pereira
+Carla Cotas
